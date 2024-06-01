@@ -7,7 +7,7 @@
     <title>Group Rules</title>
     <style>
         body {
-            background-image: url('./Assets/background.jpg');
+            background-image: url('./Assets/rbackground.mp4');
             background-size: cover;
             color: white;
             font-family: Arial, sans-serif;
