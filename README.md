@@ -20,4 +20,13 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 </p>
- 
+
+
+▂▃▄▅▆▇█▓▒░ ρℓєαѕє fork and give stars ⭐ to my repo░▒▓█▇▆▅▄▃▂
+
+ ➥☛you may edit as you can
+
+
+
+ ## see the demo output 
+ * [𝐡𝐞𝐫𝐞](https://african-cod3rs-tz.vercel.app/)
