@@ -46,6 +46,9 @@
 - 📫 How to reach me: WhatsApp me [here](wa.me/255625774543) 
 - 😄 Pronouns: 𓃵
 - ⚡ Fun fact: ➥
+
+
+ ### 𝐋𝐀𝐍𝐆𝐔𝐀𝐆𝐄𝐒 𝐈 𝐂𝐀𝐍 𝐁𝐄 𝐏𝐑𝐎𝐅𝐄𝐒𝐒𝐈𝐎𝐍𝐀𝐋 𝐖𝐈𝐓𝐇 🥰🥰
 <img  width="50%" src="https://media.giphy.com/media/UcK7JalnjCz0k/giphy.gif">
 </div>
 <p>
@@ -69,7 +72,7 @@
     <li>:seedling:Coding Enthusiast: I breathe, eat, and dream in code! Whether it's crafting sleek web applications, exploring the depths of algorithms, or building robust software, I find joy in bringing ideas to life through programming. My curiosity and desire to constantly learn drive me to read everything about tech.</li>
     <li>📚 Collaboration and Growth: I believe that communicating with people about technology is the best way to learn new and fascinating things. I thrive in team environments. I love to engage in meaningful discussions, share ideas, and contribute to open-source projects. Building a vibrant developer community is essential for collective progress.</li>
 
- <li>📫 Contact: You can reach me via my <a href="mailto:chavideveloper@gmail.com">email</a> or via my <a href="https://www.linkedin.com/in/chavi-chaimson" >LinkedIn</a>.</li>
+ <li>📫 Contact: You can reach me via my <a href="mailto:losrios755@gmail.com">email</a> or via my <a href="https://wa.me/255625774543" >Whatsapp</a>.</li>
 
   </ul>
 </div>
@@ -166,6 +169,8 @@
 <h2>Thank you for visiting my profile. Have a great day! 🌟</h2><img src="[Ni00ZWU2YzkyMjViZDEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.EXdtHcY0K3_YAE6xErW8kOB7M5LqSo9eBgkjhdOgd9s](https://i.pinimg.com/originals/1a/b4/e6/1ab4e6a7041358d80dd6809fd4b97395.gif)https://i.pinimg.com/originals/1a/b4/e6/1ab4e6a7041358d80dd6809fd4b97395.gif" width="60px">
 
 
+
+## <b>𝐕𝐄𝐍𝐎𝐂𝐘𝐁𝐄𝐑 TECH</b>
 
 
 
